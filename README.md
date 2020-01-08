@@ -1,3 +1,4 @@
-# Design-essay-Kyle-Tezak
-[Index](https://bebhionnq.github.io/Design essay-Kyle Tezak/index.html)
+Design Essay
+
+[Index](https://bebhionnq.github.io/Design-essay---Kyle-Tezak/index.html)
  
